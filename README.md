@@ -34,5 +34,5 @@ Tenho experiência em Business Intelligence, desenvolvimento de dashboards, mode
 
 ## 📫 Contato
 
-- LinkedIn: *(adicione seu link)*
-- Email: *(adicione seu email)*
+- LinkedIn: *www.linkedin.com/in/ingrid-cernauski-55a97b11b*
+- Email: *ingridcernauski@gmail.com*
